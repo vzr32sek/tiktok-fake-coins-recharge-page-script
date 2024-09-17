@@ -4,7 +4,7 @@
 
 ### This is a method used to "steal" coins in livestreams on TikTok, it has probably already appeared on Fy. In which they promise to multiply someone's coins. For example, someone sends you a gift worth 100 points and they promise to give you 1000 in return.
 
-> ✔️ **PURCHASE ($10): [Send a Message to https://t.me/tiktokscriptz** Payment in LTC, ETH, XMR, BTC or other Crypto.](https://genius.sellpass.io** Payment by Card, LTC, ETH, XMR, BTC or other Crypto.)
+> ✔️ **PURCHASE ($10): https://genius.sellpass.io Payment by Card, LTC, ETH, XMR, BTC or other Crypto.
 
 
 >⚠️ ***ATTENTION!*** **I don't tell or encourage anyone to do this kind of thing, I'm just promoting my product!**
